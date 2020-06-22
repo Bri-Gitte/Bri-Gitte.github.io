@@ -3,3 +3,8 @@
 leider nach Staffel 2 tot 
 ursprünglich aus Paris bzw. dort aufgewachsen. Wollte am liebsten mit Doron dorthin zurück.
 Hat sich in ihrer Wohnung erhängt nachdem sie nicht wie geplant ausreisen durfte. Sehr sehr schade für die Serie... 
+
+## Highlights
+* perfektes Französisch
+* große Nase
+* schöne Haare
