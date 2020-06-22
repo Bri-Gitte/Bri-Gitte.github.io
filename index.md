@@ -14,3 +14,5 @@ Shirin im Verhör
 > Doron!
 > Ich will hier raus!!
 
+<img src = "https://upload.wikimedia.org/wikipedia/commons/6/62/Laetitia_Eido.jpg"/>
+
