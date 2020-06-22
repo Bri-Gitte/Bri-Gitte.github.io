@@ -8,3 +8,9 @@ Hat sich in ihrer Wohnung erhängt nachdem sie nicht wie geplant ausreisen durft
 * perfektes Französisch
 * große Nase
 * schöne Haare
+
+Shirin im Verhör
+
+> Doron!
+> Ich will hier raus!!
+
